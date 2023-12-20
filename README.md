@@ -1,3 +1,3 @@
 ![Nightlee Logo](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBwYIrcvUZZTshZLJZ0DinPc0doSsU3bToQaNm_4K6Mygp7scoPZTV5Qbtx90QL7IboeyJNOo1JIsaYZ4SMAo_-xrHXay7GQDfq5JypJb1CJa8KGOQbTuPxFtOfmFKkFMQSP6HtEpj2I1zfLjlGsM-MWMo8OU-ccvO-j_1rzz8tU7gV16CkoLiWDZj/s320/logo512x512.jpg)
-# Nightlee - See, Be Seen, Share
+# Nightlee - Lights On, Stories On, Where Nights Come Alive.
 Connect with like-minded night owls, explore trending spots, and stay in the loop with real-time updates. Elevate your nightlife experience—where every photo tells a story, every check-in creates a memory, and every connection sparks a new adventure. Join the community, because the night is yours to share!
