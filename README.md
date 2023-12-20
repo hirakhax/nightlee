@@ -1,3 +1,3 @@
-![alt text](https://github.com/hirakhax/nightlee/blob/main/logo512x512.jpg?raw=true)
+![alt text](logo512x512.jpg)
 # nightlee
 Nightlee - See, Be Seen, Share
